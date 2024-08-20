@@ -1,6 +1,6 @@
 /*
 
-› Create By King Sam
+› Create By Demon 999
 › Collaborator Tairo Makino
 
                  
